@@ -6,3 +6,6 @@
 
 HELP SOURCES
 - https://rentry.co/savehumanity
+- https://rentry.co/charitylinks
+- https://arab.org/click-to-help/
+- https://www.bdsmovement.net
