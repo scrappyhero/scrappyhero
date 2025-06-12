@@ -1,4 +1,4 @@
-☆ CASS / YUKARI ☆ 17 ☆ LESBIAN ☆ FILOCHINESE ☆ 
+☆ CASS / YUKARI ☆ 18 ☆ LESBIAN ☆ FILOCHINESE ☆ 
 - no specific dni; i judge individually & block/hide freely!
 - feel free to interact! whisper since i may be off-tab..
 - shout out to my friends! usually sitting with them! <3
